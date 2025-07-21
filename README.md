@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SHIVAMTIWARI23 and i am Microsoft Certified PowerBI data analyst.
 - 🌱 I’m currently looking for roles like Data analyst,business analyst and MIS anlayst
-- 📫 contact : shivamtiwari2611@gmail.com 
+- 📫  Gmail : shivamtiwari2611@gmail.com  Linkedin: https://www.linkedin.com/in/shivam-tiwari-0a1bb1179/
 
 
 <!---
